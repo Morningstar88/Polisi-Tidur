@@ -10,6 +10,8 @@ https://en.wikipedia.org/wiki/Traffic_calming
 
 ### What rules and suggestions would you ask tourists to stick to?
 
+### CAn we have a designated high traffic time from 11am to 1pm?
+
 ###
 
 https://en.wikipedia.org/wiki/Vehicle-activated_sign
