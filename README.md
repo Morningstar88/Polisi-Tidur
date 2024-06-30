@@ -14,7 +14,10 @@ https://en.wikipedia.org/wiki/Bar_gate
 
 ### https://en.wikipedia.org/wiki/Rumble_strip
 
-Traffic engineers refer to three "E's" when discussing traffic calming: engineering, (community) education, and (police) enforcement. 
+Traffic engineers refer to three "E's" when discussing traffic calming: engineering, (community) education, and (police) enforcement.
+
+Flexible
+Flexible bollards are bollards designed to bend when struck by vehicles. They are typically made from synthetic plastic or rubber that is stiff on its own, but pliable under the weight of a car or truck. When struck, flexible bollards give way to some extent, reducing damage to vehicles and surrounding surfaces, and return to their original, upright position. 
 
 rubber traffic calming products are emerging as an effective alternative with several advantages.
 
