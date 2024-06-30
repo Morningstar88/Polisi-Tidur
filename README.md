@@ -10,6 +10,10 @@ https://en.wikipedia.org/wiki/Traffic_calming
 
 ### What rules and suggestions would you ask tourists to stick to?
 
+###
+
+https://en.wikipedia.org/wiki/Vehicle-activated_sign
+
 https://en.wikipedia.org/wiki/Bar_gate
 
 ### https://en.wikipedia.org/wiki/Rumble_strip
