@@ -14,6 +14,8 @@ https://en.wikipedia.org/wiki/Bar_gate
 
 ### https://en.wikipedia.org/wiki/Rumble_strip
 
+https://en.wikipedia.org/wiki/Vehicle-activated_sign
+
 Traffic engineers refer to three "E's" when discussing traffic calming: engineering, (community) education, and (police) enforcement.
 
 Flexible
