@@ -4,9 +4,13 @@ Can Bali implement innovative Sleeping Policemen?
 
 https://en.wikipedia.org/wiki/Traffic_calming
 
-## Can we implement Sleeping policemen, to deal with Bali's traffic problems?
+### Can we implement Sleeping policemen, to deal with Bali's traffic problems?
 
-## What could be done at Ngurah Rai airport to encourage better dricing?
+### What could be done at Ngurah Rai airport to encourage better driving?
+
+### What rules and suggestions would you ask tourists to stick to?
+
+
 
 Traffic engineers refer to three "E's" when discussing traffic calming: engineering, (community) education, and (police) enforcement. 
 
