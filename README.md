@@ -6,7 +6,11 @@ https://en.wikipedia.org/wiki/Traffic_calming
 
 ## Can we implement Sleeping policemen, to deal with Bali's traffic problems?
 
+## What could be done at Ngurah Rai airport to encourage better dricing?
+
 Traffic engineers refer to three "E's" when discussing traffic calming: engineering, (community) education, and (police) enforcement. 
+
+rubber traffic calming products are emerging as an effective alternative with several advantages.
 
 I propose a "Morningstar Traffic Prize" competition for Bali, Indonesia. In this friendly but difficult challenge, the nine regencies will compete to design innovative and peaceful **sleeping policemen** systems. These systems aim to enhance road safety, reduce traffic congestion, and provide a smoother driving experience. Here's how we can structure the competition:
 
